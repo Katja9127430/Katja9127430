@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Katja9127430
-- 👀 I’m interested in finance and american tax
+- 👀 I’m interested in finance and USA & Canada taxies
 - 🌱 I’m currently learning how to pay taxies in usa canada 
-- 💞️ I’m looking to collaborate on ////
+- 💞️ I’m looking to collaborate on accountan agency in Canada & USA
 - 📫 How to reach me 9127430@mail.ru+ +375291986200 viber, whatsup, telegram, katijanikiforova (skype)
 
 <!---
